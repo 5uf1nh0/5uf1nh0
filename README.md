@@ -12,7 +12,7 @@
 
 - 📫 Puedes ponerte en contacto conmigo a través de **sufinho10@gmail.com**
 
-- 📄 En cuanto a mi experiencia [in/5uf1nh0](www.linkedin.com/in/5uf1nh0)
+- 📄 En cuanto a mi experiencia [(www.linkedin.com/in/5uf1nh0)](https://www.linkedin.com/in/5uf1nh0/)
 
 
 <h3 align="left">Lenguajes y Herramientas:</h3>
